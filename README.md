@@ -36,7 +36,7 @@ Here are some of my favorite projects:
 - I love solving puzzles and playing piano.
 - I enjoy hiking and exploring nature trails.
 - I maintain a few beehives.
-- I love
+- I love baking Sourdough Bread
 - I make a mean Chocolate chip cookie.  😊
 
 Feel free to explore my repositories and reach out if you have any questions or collaboration ideas!
